@@ -8,9 +8,8 @@
    - Name: Angelina Yeh 
    - Pronouns: She/her 
    - School: Queens High School for the Sciences 
-   - Currently...in New York! 
-:
-:
+   - In the big apple 🍎
+
  
 #  🤍 A few things about me... 🤍
 
