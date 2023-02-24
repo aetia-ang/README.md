@@ -3,7 +3,7 @@
 :
 
 
-#   \=(^ᴥ^)=/  intro 
+#    intro *.¸¸.ପଓ
 
    - Name: Angelina Yeh 
    - Pronouns: She/her 
