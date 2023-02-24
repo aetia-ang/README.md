@@ -1,4 +1,4 @@
-#  *.¸¸.ପଓ  angelina  ପଓ .¸¸.*
+#    angelina  
 :
 :
 
