@@ -8,6 +8,6 @@
  
  
 🤍 5 things about me 🤍
- - love love art 
- - fountain & gel pens are a must! 
- - 
+  • love love art 
+  • fountain & gel pens are a must! 
+ 
