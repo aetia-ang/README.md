@@ -1,6 +1,7 @@
 #    angelina  
 
-![gif](https://user-images.githubusercontent.com/125828837/221283150-29c2542c-b9df-46a9-9c58-b8656f9705ef.png)
+
+![anh-dong-welcome-de-thuong_075925577](https://user-images.githubusercontent.com/125828837/221283462-3f94d3f6-32f7-4773-8a46-7438e7fe8f73.gif)
 
 
 
