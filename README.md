@@ -1,4 +1,4 @@
-# Angelina
+#                                                                      🤍    Angelina    🤍
  
 
 
@@ -10,7 +10,7 @@
    - Currently...in New York! 
  
  
-  🤍 A few things about me... 🤍
+#  🤍 A few things about me... 🤍
 
   - drawing everyday ✩
   - fountain & gel pens are a must 
