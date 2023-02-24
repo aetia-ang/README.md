@@ -14,7 +14,7 @@
    - name - Angelina Yeh 
    - pronouns - she/her 
    - school - Queens High School for the Sciences 
-   - in The Big Apple 
+   - location - The Big Apple 
 
 
 
