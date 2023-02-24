@@ -15,7 +15,7 @@
 
 
  
-#  🤍 A few things about me 🤍
+#  🤍 a few things about me 🤍
 
   - drawing everyday ✩
   - oatmeal cookies <3 
