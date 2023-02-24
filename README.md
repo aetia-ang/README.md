@@ -8,14 +8,14 @@
    - Name: Angelina Yeh 
    - Pronouns: She/her 
    - School: Queens High School for the Sciences 
-   - In the big apple 🍎
+   - In The Big Apple 
 
  
 #  🤍 A few things about me... 🤍
 
   - drawing everyday ✩
   - oatmeal cookies <3 
-  - fave color: 🌸 pink 🌸
+  - fave color: pink
   - fave song: Energetic by Wanna One ♪
   - love 80's, 90's, and 00's music!!  
   - gifs are golden 
