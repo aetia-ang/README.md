@@ -1,6 +1,6 @@
 #    angelina  
 
-![image](https://user-images.githubusercontent.com/125828837/221283150-29c2542c-b9df-46a9-9c58-b8656f9705ef.png)
+![gif](https://user-images.githubusercontent.com/125828837/221283150-29c2542c-b9df-46a9-9c58-b8656f9705ef.png)
 
 
 
