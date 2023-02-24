@@ -3,7 +3,7 @@
 :
 
 
-#    intro *.¸¸.ପଓ
+#  *.¸¸.ପଓ  intro  ପଓ .¸¸.*
 
    - Name: Angelina Yeh 
    - Pronouns: She/her 
@@ -14,9 +14,9 @@
 #  🤍 A few things about me... 🤍
 
   - drawing everyday ✩
-  - fountain & gel pens are a must 
-  - fave color is pink 
-  - current fave song: Energetic by Wanna One  
+  - oatmeal cookies <3 
+  // fave color: 🌸 pink 🌸
+  - fave song: Energetic by Wanna One ♪
   - love 80's, 90's, and 00's music!!  
   - gifs are golden 
  
