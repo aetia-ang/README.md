@@ -2,7 +2,7 @@
  
 
 
-🤍 About Myself 🤍
+🤍 intro 🤍
 
    - Name: Angelina Yeh 
    - Pronouns: She/her 
@@ -12,10 +12,9 @@
  
 🤍 A few things about me... 🤍
 
-  - love love art 
+  - drawing everyday ✩
   - fountain & gel pens are a must 
-  - current fave author is Dale Carnegie ✩
-  - Percy Jackson is my og book series!
-  - Addicted to kpop, kdramas, & singing competition shows 
-  - Love 80's, 90's, and 00's music!!  
+  - current fave author: Dale Carnegie ✩
+  - current fave song: Energetic by Wanna One  
+  - love 80's, 90's, and 00's music!!  
  
