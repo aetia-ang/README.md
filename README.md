@@ -1,1 +1,1 @@
-#    🤍  ⋆｡°✩ Welcome, I'm Angelina ⋆｡°✩ 🤍 
+#   ʕฅ•ᴥ•ʔฅ 🤍 Angelina 🤍 ٩ʕ•ᴥ•ʔ۶
