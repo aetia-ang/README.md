@@ -10,6 +10,8 @@
    - School: Queens High School for the Sciences 
    - In The Big Apple 
 
+![image](https://user-images.githubusercontent.com/125828837/221282792-a1d47828-70f5-4945-be73-947845330636.png)
+
  
 #  🤍 A few things about me... 🤍
 
@@ -17,6 +19,7 @@
   - oatmeal cookies <3 
   - fave color: pink
   - fave song: Energetic by Wanna One ♪
-  - love 80's, 90's, and 00's music!!  
+  - love nature 
   - gifs are golden 
+   
  
