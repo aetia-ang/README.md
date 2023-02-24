@@ -1,8 +1,8 @@
-# 🌸 Angelina 🌸
+# Angelina
  
 
 
-   🤍 intro 🤍
+#   🤍 intro 🤍
 
    - Name: Angelina Yeh 
    - Pronouns: She/her 
