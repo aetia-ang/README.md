@@ -1,8 +1,8 @@
-# Angelina's Profile 
+# 🌸 Angelina's Profile 🌸
  
 
 
-🤍 intro 🤍
+   🤍 intro 🤍
 
    - Name: Angelina Yeh 
    - Pronouns: She/her 
@@ -10,11 +10,11 @@
    - Currently...in New York! 
  
  
-🤍 A few things about me... 🤍
+  🤍 A few things about me... 🤍
 
   - drawing everyday ✩
   - fountain & gel pens are a must 
-  - current fave author: Dale Carnegie ✩
+  - fave color is pink 
   - current fave song: Energetic by Wanna One  
   - love 80's, 90's, and 00's music!!  
  
