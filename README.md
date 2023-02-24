@@ -8,7 +8,7 @@
 #  *.¸¸.ପଓ  intro  ପଓ .¸¸.*
 
    - name - Angelina Yeh 
-   - pronouns - She/her 
+   - pronouns - she/her 
    - school - Queens High School for the Sciences 
    - in The Big Apple 
 
